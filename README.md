@@ -1,5 +1,5 @@
 # Sandrine Kakieu Djossi M.D. 
-Henderson, NV 89015 • 725-275-5305 • sandrinekakieu@gmail.com  
+Henderson, NV 89015 • sandrinekakieu@gmail.com  
 
 **OBJECTIVE:**  
 Match 
